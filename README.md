@@ -41,7 +41,7 @@
 
 ##  Contact
 
-For collaboration or technical inquiries, please contact via WeChat: **xz11011**
+For collaboration or technical inquiries, please contact via WeChat: **xingzhe11011**
 
 ---
 
